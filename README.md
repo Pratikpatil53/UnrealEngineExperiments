@@ -13,4 +13,4 @@ Feel free to reach out or follow progress:
 
 - Gmail: pratikpatil8105326@gmail.com
 
-- Stay tuned!
+Stay tuned!
